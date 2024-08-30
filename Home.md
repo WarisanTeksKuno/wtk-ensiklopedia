@@ -43,11 +43,7 @@ Henokh disebutkan dalam:
 ### **Gambar:**
 
 **1. Ilustrasi Henokh:**
-[Deskripsi Gambar]
-- Henokh digambarkan dengan latar belakang langit, melambangkan peristiwa "diambil oleh Allah". Dia memakai jubah panjang, menghadap ke atas, dengan tangan terangkat seolah-olah sedang diangkat ke surga.
 
-**2. Diagram Garis Keturunan Henokh:**
-[Deskripsi Gambar]
-- Diagram yang menunjukkan garis keturunan dari Adam hingga Henokh, diilustrasikan dengan pohon keluarga.
+- Henokh digambarkan dengan latar belakang langit, melambangkan peristiwa "diambil oleh Allah". Dia memakai jubah panjang, menghadap ke atas, dengan tangan terangkat seolah-olah sedang diangkat ke surga.
 
 ---
