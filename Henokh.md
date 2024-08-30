@@ -40,10 +40,4 @@ Henokh disebutkan dalam:
 | 6   | Yared      | 162                              | 962                      | Henokh   |
 | 7   | Henokh     | 65                               | 365                      | Metusalah|
 
-### **Gambar:**
-
-**1. Ilustrasi Henokh:**
-
-- Henokh digambarkan dengan latar belakang langit, melambangkan peristiwa "diambil oleh Allah". Dia memakai jubah panjang, menghadap ke atas, dengan tangan terangkat seolah-olah sedang diangkat ke surga.
-
 ---
